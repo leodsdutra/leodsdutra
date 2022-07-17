@@ -6,6 +6,6 @@
 - 👯 Estou procurando colaborar em projetos de front-end
 - 🤔 Estou procurando ajuda com meus estudos
 - 💬 Pergunte-me sobre meus interesses e ambições
-- 📫 Como entrar em contato comigo: leodsdutra@outlook.com
+- 📫 Como entrar em contato comigo: leodsdutra@outlook.com, www.linkedin.com/in/leodsdutra
 - 😄 Pronomes: Ele/dele
 - ⚡ Curiosidade: Amo Rock progressivo psicodélico e Trance.
